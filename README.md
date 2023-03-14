@@ -22,3 +22,6 @@
 * Dying light
 * [Minecraft Parkour](https://www.minecraftmaps.com/finding-maps/find-the-button-by-icemaster1294)
 
+---
+
+[Архитектура](https://drive.google.com/file/d/1pwibqhom7YRkTr6yvScCzj0OWzoSfPW6/view?usp=share_link)
